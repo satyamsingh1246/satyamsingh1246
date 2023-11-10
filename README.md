@@ -13,6 +13,6 @@
 📫 Let's connect and collaborate! Feel free to explore my projects below or drop me a message. Open to new opportunities and exciting challenges.
 
 🔗 [portfolio website]
-📧 [5801sataym@gmail.com]
+📧 [5801satyam@gmail.com]
 📱 [www.linkedin.com/in/satyam-singh-492723264]
 
